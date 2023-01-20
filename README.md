@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @hirushinidem (IT21059636)
+- 👋 Hi, I’m Hirushini Dematagoda (IT21059636)
 
